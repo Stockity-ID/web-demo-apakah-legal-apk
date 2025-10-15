@@ -1,6 +1,6 @@
 # Stockity Legal Atau Ilegal, Download, Partner – Langkah Cerdas Menuju Dunia Trading Modern
 <!-- wp:paragraph -->
-<p>Di tengah perkembangan dunia digital yang pesat, kesempatan untuk meraih penghasilan tambahan melalui sektor finansial kini semakin luas. Salah satu pilihan populer yang menarik perhatian jutaan pengguna di Indonesia adalah Stockity ID, sebuah platform trading modern yang menghadirkan beragam fitur inovatif serta akses yang praktis bagi semua kalangan.</p>
+<p>Di tengah perkembangan dunia digital yang pesat, kesempatan untuk meraih penghasilan tambahan melalui sektor finansial kini semakin luas. Salah satu pilihan populer yang menarik perhatian jutaan pengguna di Indonesia adalah <strong><a href="https://stockity-adalah.com/">Stockity</a></strong> ID, sebuah platform trading modern yang menghadirkan beragam fitur inovatif serta akses yang praktis bagi semua kalangan.</p>
 <!-- /wp:paragraph -->
 
 <!-- wp:heading -->
@@ -43,6 +43,12 @@
 <!-- /wp:paragraph -->
 
 <!-- wp:heading -->
+[<img width="1031" height="64" alt="button" src="https://github.com/user-attachments/assets/85605751-e36d-4a92-86cc-37d4fdf7905b" />](https://stockity-adalah.com/)
+
+
+<!-- /wp:heading -->
+
+<!-- wp:heading -->
 <h2 class="wp-block-heading">Program Partner Stockity</h2>
 <!-- /wp:heading -->
 
@@ -72,7 +78,7 @@
 <!-- /wp:heading -->
 
 <!-- wp:paragraph -->
-<p>Keraguan seperti apakah Stockity termasuk judi atau apakah aplikasi Stockity termasuk judi kerap muncul. Namun, penting dipahami bahwa aktivitas di Stockity berfokus pada analisis pasar, strategi, dan pengambilan keputusan berbasis data, bukan pada keberuntungan semata.</p>
+<p>Keraguan seperti apakah <strong><a href="https://stockity-adalah.com/">Stockity</a></strong> termasuk judi atau apakah aplikasi Stockity termasuk judi kerap muncul. Namun, penting dipahami bahwa aktivitas di Stockity berfokus pada analisis pasar, strategi, dan pengambilan keputusan berbasis data, bukan pada keberuntungan semata.</p>
 <!-- /wp:paragraph -->
 
 <!-- wp:paragraph -->
@@ -81,5 +87,10 @@
 
 <!-- wp:paragraph -->
 ![pic 3 2](https://github.com/user-attachments/assets/cb731004-8aaf-4b50-ad3b-bf6ba5517b6e)
+
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+[<img width="1031" height="64" alt="button" src="https://github.com/user-attachments/assets/2673cf50-192b-4459-84cc-d65c37048ff8" />](https://stockity-adalah.com/)
 
 <!-- /wp:paragraph -->
